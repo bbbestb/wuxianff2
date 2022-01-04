@@ -2,10 +2,10 @@
 
 |  Windows梯子   | 推荐理由  |
 |  ----  | ----  |
-| [NordVPN](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=wuxianff2) | TOP2，性价比较高 |
-| [ExpressVPN](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff2) | TOP1 |
-| [PandaVPN](https://pandavpnpro.com/r/22216799) | 亲民产品，海外华人开发，有免费试用 |
-| [IvacyVPN](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=github&data2=wuxianff2) | TOP3 |
+| [Nord梯子](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=wuxianff2) | TOP2，性价比较高 |
+| [Express梯子](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff2) | TOP1 |
+| [Panda梯子](https://pandavpnpro.com/r/22216799) | 亲民产品，海外华人开发，有免费试用 |
+| [Ivacy梯子](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=github&data2=wuxianff2) | TOP3 |
 
 ---
 
