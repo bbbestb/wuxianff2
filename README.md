@@ -9,8 +9,10 @@
 
 ---
 
-## [老铁亲身体验，Nord梯子的特性如下：](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=wuxianff2)
+## [Nord梯子的特性如下：](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=wuxianff2)
 ### 专用服务器配置文件打造流畅上网体验
+
+✅提供 30 天退款保证
 
 ✅提供 AES-256 加密及强大的安全协议
 
@@ -18,7 +20,7 @@
 
 ✅易于使用的应用程序，兼容多数主流设备
 
-✅提供 30 天退款保证
+✅Chrome和Firefox扩展
 
 ✅经常有打折活动，顶级品牌中最实惠的梯子
 
