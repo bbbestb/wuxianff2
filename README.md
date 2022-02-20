@@ -10,7 +10,7 @@
 | 熊猫梯子 | 👍👍👍 | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
  | Strong梯子 | 👍👍👍 | [Strong官方网址](https://strongvpn.com/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff1) | [Strong备用网址1](https://reliablevpn.net/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff1) | [Strong备用网址2](https://strongtech.org/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff1) |
 
-## [Nord梯子的特性如下：](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=wuxianff2)
+## [Ivacy梯子的特性如下：](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=wuxiandd&data2=wuxianff1)
 ### 专用服务器配置文件打造流畅上网体验
 
 ✅提供 30 天退款保证
@@ -27,7 +27,7 @@
 
 ---
 
-## [Express梯子的特性如下：](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff1)
+## [Nord梯子的特性如下：](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff1)
 ### 高速流畅地浏览网站，结合零日志政策，持续保护您的网络隐私
 
 ✅决定购买前可享受无风险试用（提供 30 天退款保证）
@@ -52,7 +52,7 @@
 
 ---
 
-## [Ivacy梯子](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=github&data2=wuxianff2) 
+## [Express梯子](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=github&data2=wuxianff2) 
 ### 遍布全球的服务器
 
 ✅顶级技术，不必担心泄漏隐私
