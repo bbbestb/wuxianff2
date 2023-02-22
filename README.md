@@ -1,6 +1,6 @@
 ## Windows梯子，国内最好用的Windows梯子【老铁亲身体验的电脑梯子推荐】
 
-### 2022中国翻墙软件和科学上网推荐指南，最新稳定好用的翻墙VPN推荐，能用的VPN梯子不多了，以及对比VPS自建梯子、SSR机场、V2ray、蓝灯、老王VPN、WireGuard等翻墙软件和科学上网方法
+### 2023中国翻墙软件和科学上网推荐指南，最新稳定好用的翻墙VPN推荐，能用的VPN梯子不多了，以及对比VPS自建梯子、SSR机场、V2ray、蓝灯、老王VPN、WireGuard等翻墙软件和科学上网方法
 
 ---
 
@@ -10,9 +10,8 @@
 |  ----  | ----  | ---- | ---- | ---- |
 | Ivacy梯子 | 👍👍👍👍👍 | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=wuxiandd&data2=wuxianff2) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/wuxiandd/wuxianff2) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=wuxiandd&data2=wuxianff2) |
 | Nord梯子 | 👍👍👍👍 | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=wuxiandd&aff_click_id=wuxianff2) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=wuxiandd&aff_sub2=wuxianff2) | - |
-| Express梯子 | 👍👍👍👍 | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=wuxiandd&data1=wuxianff2) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=wuxiandd&data1=wuxianff2) | - |
-| 熊猫梯子 | 👍👍👍 | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
- | Strong梯子 | 👍👍👍 | [Strong官方网址](https://strongvpn.com/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) | [Strong备用网址1](https://reliablevpn.net/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) | [Strong备用网址2](https://strongtech.org/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) |
+| Express梯子 | ⭐⭐⭐⭐ | [Express官方网址](https://go.expressvpn.com/c/4034381/1608823/16063?subId1=gitwuxianff&subId2=wuxianff2) | - | - |
+| West梯子 | ⭐⭐⭐ | [West官方网址](https://fuqing.cz/aff.php?aff=2956) | - | - |
 
 ## [Ivacy梯子的特性如下：](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=wuxiandd&data2=wuxianff2)
 ### 专用服务器配置文件打造流畅上网体验
@@ -46,17 +45,7 @@
 
 ---
 
-## [Panda梯子](https://pandavpnpro.com/r/22216799)
-### 中文支持
-
-✅最大的特点就是中文支持，可以随时请教客服
-
-✅亚洲地区的线路非常多，日、韩、香港、新加坡等
-
-
----
-
-## [Express梯子](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=github&data2=wuxianff2) 
+## [Express梯子](https://go.expressvpn.com/c/4034381/1608823/16063?subId1=gitwuxianff&subId2=wuxianff2) 
 ### 遍布全球的服务器
 
 ✅顶级技术，不必担心泄漏隐私
