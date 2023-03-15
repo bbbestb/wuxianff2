@@ -30,7 +30,7 @@
 
 ---
 
-## [Nord梯子的特性如下：](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff1)
+## [Nord梯子的特性如下：](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=wuxiandd&aff_click_id=wuxianff2)
 ### 高速流畅地浏览网站，结合零日志政策，持续保护您的网络隐私
 
 ✅决定购买前可享受无风险试用（提供 30 天退款保证）
