@@ -18,7 +18,7 @@
 
 ## Windows梯子，国内最好用的Windows梯子【老铁亲身体验的电脑梯子推荐】
 
-### 2023中国翻墙软件和科学上网推荐指南，最新稳定好用的翻墙VPN推荐，能用的VPN梯子不多了，以及对比VPS自建梯子、SSR机场、V2ray、蓝灯、老王VPN、WireGuard等翻墙软件和科学上网方法
+### 最新稳定好用的翻墙VPN推荐，能用的VPN梯子不多了，以及对比VPS自建梯子、SSR机场、V2ray、蓝灯、老王VPN、WireGuard等翻墙软件和科学上网方法
 
 ---
 
@@ -28,7 +28,7 @@
 |  ----  | ----  | ---- | ---- | ---- |
 | Ivacy梯子 | 👍👍👍👍👍 | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=wuxiandd&data2=wuxianff2) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/wuxiandd/wuxianff2) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=wuxiandd&data2=wuxianff2) |
 | Nord梯子 | 👍👍👍👍 | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=wuxiandd&aff_click_id=wuxianff2) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=wuxiandd&aff_sub2=wuxianff2) | - |
-| Express梯子 | ⭐⭐⭐⭐ | [Express官方网址](https://go.expressvpn.com/c/4034381/1608823/16063?subId1=gitwuxianff&subId2=wuxianff2) | - | - |
+| Express梯子 | ⭐⭐⭐⭐ | [Express官方网址](https://go.expressvpn.com/c/4034381/1608823/16063?subId1=2gitwuxianff&subId2=wuxianff2) | - | - |
 | West梯子 | ⭐⭐⭐ | [West官方网址](https://fuqing.cz/aff.php?aff=2956) | - | - |
 
 ## [Ivacy梯子的特性如下：](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=wuxiandd&data2=wuxianff2)
@@ -63,7 +63,7 @@
 
 ---
 
-## [Express梯子](https://go.expressvpn.com/c/4034381/1608823/16063?subId1=gitwuxianff&subId2=wuxianff2) 
+## [Express梯子](https://go.expressvpn.com/c/4034381/1608823/16063?subId1=2gitwuxianff&subId2=wuxianff2) 
 ### 遍布全球的服务器
 
 ✅顶级技术，不必担心泄漏隐私
